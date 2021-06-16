@@ -1,0 +1,2 @@
+# EagleWild
+The Next CryptoCurrency
